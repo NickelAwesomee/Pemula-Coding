@@ -1,3 +1,4 @@
+<p align="center"><img src="https://media.tenor.com/gZ7drpbeBWYAAAAM/larissa-rochefort-larissarochefort.gif"/></p>
 <p align="center"><img src="sepuh.jpg"></p>
 
 ---
